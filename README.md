@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @n-kul
+- 👀 I’m interested in rockets and coding
+- 🌱 I’m currently learning model rocketry, web dev, data science
+- 💞️ I’m looking to collaborate on any projects
+- 📫 How to reach me 'prestplanet@gmail.com'
+- 😄 Pronouns: HE
